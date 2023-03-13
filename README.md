@@ -14,7 +14,7 @@
  
  <br>
  
-  ### Para me conhecer melhor me segue  nas redes abaixo!😊😘✨
+  👇🏻 Minhas redes 😊😘✨
  
 <div> 
  
